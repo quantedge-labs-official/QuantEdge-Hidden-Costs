@@ -86,7 +86,7 @@ Our bot was designed specifically to eliminate these hidden costs through profes
 
 ---
 <p align="center">
-  [Visit our Website: quantedge-labs.github.io](https://quantedge-labs.github.io)
+  **Visit our Website and acquire your edge. Make your offer—the price might be lower than you think.** (https://quantedge-labs.github.io)
 </p>
 
 <p align="center">
